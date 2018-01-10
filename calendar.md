@@ -1,3 +1,7 @@
+---
+layout: default
+title: calendar
+---
 
 ## Week 1 -- Introduction
 
