@@ -15,8 +15,6 @@ title: syllabus
 
 **Office Hours:** Tuesday, 4:00-5:00, Wednesday, 3:00-4:00
 
-# syllabus {#history}
-
 The Spanish Inquisition lives on in the popular imagination more than five
 hundred years after it was established in 1478. Monty Python taught us no
 one expected it. Mel Brooks turned it into a song. This dark humor worked

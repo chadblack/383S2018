@@ -3,6 +3,9 @@ layout: default
 title: calendar
 ---
 
+# calendar {#history}
+
+
 ## Week 1 -- Introduction
 
 Thursday, January 11, 2018: **The Syllabus**
