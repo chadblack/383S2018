@@ -5,7 +5,7 @@ title: assignments
 
 # Assignments {#history}
 
-1. **Reading Memos** (30%)
+1. **Reading Memos** (25%)
    
    For each assigned secondary reading, students must write
    a research memo to be turned in on the day that reading is assigned.
@@ -27,7 +27,7 @@ title: assignments
    essay questions. You may bring printed copies of your reading
    memos to aid in your exams.
 
-4. **Trial Discussions** (10%)
+4. **Trial Discussions** (15%)
    
    Most Thursdays, we will be reading and analyzing cases to
    understand what Inquisition sources offer the modern historian.
