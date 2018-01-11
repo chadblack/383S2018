@@ -24,7 +24,7 @@ Tuesday, January 16, 2018
 readings folder or on the [library
 website](https://ebookcentral-proquest-com.proxy.lib.utk.edu:2050/lib/utk/detail.action?docID=3420469)
 
-**DUE:  ** Research Memo on Nesvig.
+**DUE:** Research Memo on Nesvig.
 
 Thursday, January 18, 2018
 
@@ -42,7 +42,7 @@ Tuesday, January 23, 2018
 
 * Kamen, Chapters 7-9.
 
-**DUE:  ** Research Memo on Kamen.
+**DUE:** Research Memo on Kamen.
 
 
 Thursday, January 25, 2018 
@@ -63,7 +63,7 @@ Tuesday, January 30, 2018
 53-74 in Mary Giles, ed., *Women in the Inquisition: Spain and the New
 World* (Johns Hopkins Press, 1999).
 
-**DUE:  ** Research Memo on Melammed.
+**DUE:** Research Memo on Melammed.
 
 
 Thursday, February 1, 2018
@@ -83,7 +83,7 @@ Tuesday, February 6, 2018
 * Angel Alcala, "Maria del Cazalla: The Grievous Price of Victory," pp.
 98-118 in Giles (1999).
 
-**DUE:  ** Research Memos on Kamen and Alcala.
+**DUE:** Research Memos on Kamen and Alcala.
 
 
 Thursday, February 8, 2018 
@@ -103,7 +103,7 @@ Tuesday, February 13, 2018
 * Allyson Poska, "When Bigamy is the Charged: Gallegan Women and the Holy
 Office," pp. 2189-208 in Giles (1999).
 
-**DUE:  ** Research Memos on Kamen and Poska.
+**DUE:** Research Memos on Kamen and Poska.
 
 
 Thursday, February 15, 2018 
@@ -126,7 +126,7 @@ Tuesday, February 20, 2018
 * Monter, *Frontiers of Heresy*, Chapter 12.
 
 
-**DUE:  ** Research Memos on Federici and Monter.
+**DUE:** Research Memos on Federici and Monter.
 
 
 Thursday, February 22, 2018 
@@ -144,7 +144,7 @@ Tuesday, February 27, 2018
 
 * Kamen, Chapters 10-11
 
-**DUE:  ** Research Memo on Kamen.
+**DUE:** Research Memo on Kamen.
 
 
 Thursday, March 1, 2018 
@@ -176,7 +176,7 @@ Tuesday, March 20, 2018:
 
 * Chuchiak, pp. 1-54.
 
-**DUE:  ** Research Memo on Chuchiak.
+**DUE:** Research Memo on Chuchiak.
 
 
 Thursday, March 22, 2018: 
@@ -197,7 +197,7 @@ Tuesday, March 27, 2018:
 * Kathryn Joy McKnight, "Blasphemy as Resistance: An African Slave Woman before
 the Mexican Inquisition," pp. 229-254 in Giles (1999).
 
-**DUE:  ** Research Memos on Bodian and McKnight.
+**DUE:** Research Memos on Bodian and McKnight.
 
 
 Thursday, March 29, 2018: 
@@ -223,7 +223,7 @@ Unnatural in Colonial Latin America* (Berkeley: UC Press, 2016).
 Office in Eighteenth-Century Mexico," pp. 44-58 in Tortorici.
 
 
-**DUE:  ** Research Memos on Bhear, von Germeten, and Jaffary.
+**DUE:** Research Memos on Bhear, von Germeten, and Jaffary.
 
 
 Thursday, April 5, 2018: 
@@ -247,7 +247,7 @@ Religious and Theological Information* 10:3-4 (2011): pp. 103-124.
 * Richard Greenleaf, "The Mexican Inquisition and the Enlightenment,
 1763-1805," *New Mexico Historical Review* 41.3 (1966): 181-
 
-**DUE:  ** Research Memo on 
+**DUE:** Research Memo on 
 
 
 Thursday, April 12, 2018: 
@@ -284,7 +284,7 @@ Tuesday, April 24, 2018:
 
 * Kamen, Ch. 14.
 
-**DUE:  ** Research Memo on Kamen and Reaction paper to Goya's Ghosts.
+**DUE:** Research Memo on Kamen and Reaction paper to Goya's Ghosts.
 
 
 Thursday, April 26, 2018: 
