@@ -3,7 +3,7 @@ layout: default
 title: assignments
 ---
 
-# Assignments {#history}
+# assignments {#history}
 
 1. **Reading Memos** (25%)
    

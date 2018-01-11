@@ -26,7 +26,7 @@ website](https://ebookcentral-proquest-com.proxy.lib.utk.edu:2050/lib/utk/detail
 
 **DUE:  ** Research Memo on Nesvig.
 
-Thursday, January 18, 2018: **From *Convivencia* to Closure**
+Thursday, January 18, 2018
 
 **READ:**  
 
