@@ -19,7 +19,7 @@ title: assignments
    *Agents of Orthodoxy*. This book is on the Inquisition in Brazil,
    and your review should extend the normal research memo to a review
    that compares Wadsworth's portrayal of the Inquisition in
-   Pernambuco to New Spain. **DUE: ** 
+   Pernambuco to New Spain. **DUE: April 19.** 
 
 3. **Midterm and Final Exams** (20% each)
    
