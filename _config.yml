@@ -3,3 +3,6 @@ permalink: pretty
 baseurl: "/383S2018"
 url: "http://chadblack.github.io"
 markdown: kramdown
+
+plugins:
+  - jekyll-feed
