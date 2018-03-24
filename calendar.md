@@ -213,7 +213,9 @@ Tuesday, April 3, 2018:
 
 **READ:**  
 
-* Behar, Ruth. “Sexual Witchcraft, Colonialism, and Women’s Powers: Views from the Mexican Inquisition.” In Sexuality and Marriage in Colonial Latin America, ed. Asunción Lavrin. Lincoln: Univ. of Nebraska Press, 1992 (178-206).
+* Leo Garofalo, "Conjuring the Coca and the Inca: The Andeanization of Lima's
+Afro-Peruvian Ritual Specialists, 1580-1690," *The Americas* 63.1 (July 2006):
+53-80.
 
 * Nicole von Germeten, "Archival Narratives of Clerical Sodomy and Suicide from
 Eighteenth-Century Cartagena," pp. 23-34 in Tortorici, ed., *Sexuality and the
