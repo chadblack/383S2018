@@ -221,11 +221,9 @@ Afro-Peruvian Ritual Specialists, 1580-1690," *The Americas* 63.1 (July 2006):
 Eighteenth-Century Cartagena," pp. 23-34 in Tortorici, ed., *Sexuality and the
 Unnatural in Colonial Latin America* (Berkeley: UC Press, 2016).
 
-* Nora Jaffary, "Sacred Defense and Sexual Desecration: Maria Gertrudis Arevalo and the Holy
-Office in Eighteenth-Century Mexico," pp. 44-58 in Tortorici.
 
 
-**DUE:** Research Memos on Bhear, von Germeten, and Jaffary.
+**DUE:** Research Memos on Garofalo and von Germeten.
 
 
 Thursday, April 5, 2018: 
